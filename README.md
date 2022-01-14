@@ -16,4 +16,4 @@ Here are some ideas to get you started:
 -->
 
 
-### I'm Rawan. Visit https://rawansuww.github.io/ for my professional portfolio. 
+### I'm Rawan. Visit https://rawansuww.github.io/ for my small, humble portfolio :]
